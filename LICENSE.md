@@ -1,4 +1,4 @@
-
+Figma for macOS best Action - layer styles and gradient maps is the best Figma for macOS action, featuring layer styles and gradient maps. Safe, efficient, and optimized for
 
 
 
